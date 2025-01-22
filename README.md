@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Yonatan Zohr
+- 👋 Hi, I’m Yonatan Zohar
 
 
 <!---
