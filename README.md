@@ -27,7 +27,7 @@ Feel free to reach out to me for collaborations, questions, or advice on project
 
 - **Email:** yy1zohar@gmail.com 📧  
 - **GitHub:** [YZohar8](https://github.com/YZohar8) 🧑‍💻
-- **Linkdin** [yonatan zohar](www.linkedin.com/in/yonatan-zohar-72641834a)
+- **Linkdin** www.linkedin.com/in/yonatan-zohar-72641834a
 
 ---
 
