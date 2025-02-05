@@ -26,7 +26,8 @@ Here are some of the projects I have worked on:
 Feel free to reach out to me for collaborations, questions, or advice on projects. I am always looking for opportunities to learn and grow! 🤝
 
 - **Email:** yy1zohar@gmail.com 📧  
-- **GitHub:** [YZohar8](https://github.com/YZohar8) 🧑‍💻  
+- **GitHub:** [YZohar8](https://github.com/YZohar8) 🧑‍💻
+- **Linkdin** [yonatan zohar](www.linkedin.com/in/yonatan-zohar-72641834a)
 
 ---
 
